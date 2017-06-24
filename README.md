@@ -1,2 +1,8 @@
 # hello-word
 First Repository
+UOU
+QUE TRI
+USANDO GITHUB PELA PRIMEIRA VEZ 
+NOSSA
+QUE ANIMAL
+AHAM
